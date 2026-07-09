@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GOCY981007MCHNRN07
+GOCY981007MCHNRN07
